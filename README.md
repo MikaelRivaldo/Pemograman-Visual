@@ -10,6 +10,10 @@
 
 ---
 
-![WhatsApp Image 2024-11-01 at 10 26 01_915b0158](https://github.com/user-attachments/assets/fe613b80-1aaa-4706-a964-ce1d9bfa7969)
+![image](https://github.com/user-attachments/assets/f83259f8-a95d-4417-965a-af3bbf129333)
+
+![image](https://github.com/user-attachments/assets/572f4527-21a3-4c67-8a25-c840b2bcf46a)
+
+![image](https://github.com/user-attachments/assets/80be4013-5314-40f8-8fba-daf3afaea8f7)
 
 ---
